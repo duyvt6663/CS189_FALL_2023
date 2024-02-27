@@ -1,0 +1,1 @@
+[HW1_writeup](https://chain-scraper-d1e.notion.site/HW1-bb506da1155941d0a5de4e860f916aaf?pvs=4)
