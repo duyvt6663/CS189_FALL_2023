@@ -4,4 +4,4 @@ https://eecs189.org/
 
 ---
 I'm not an EECS Berkeley student so there are some files I couldn't access sadly.   
-Contact: duy.le1201@hcmut.edu.vn
+Contact: duyvt6663@gmail.com
